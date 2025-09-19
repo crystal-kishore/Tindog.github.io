@@ -2,8 +2,9 @@
 
 
 The Billinaire here
-The Latch
+The Latch ✅
 The Revolt ✅
+
 
 
 
