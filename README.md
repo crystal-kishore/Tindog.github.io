@@ -1,6 +1,6 @@
 # Tindogg
 
-The Billinaire here ⏳
+The Billionaire here ⏳
 The Latch ✅
 The Revolt ✅
 The Accomplishment ✅
