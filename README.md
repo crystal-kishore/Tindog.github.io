@@ -1,4 +1,4 @@
-# Tindog
+# Tindogg
 
 The Billinaire here ⏳
 The Latch ✅
