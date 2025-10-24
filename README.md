@@ -1,5 +1,3 @@
-
-
 # Tindog
 
 The Billionaire here ⏳
